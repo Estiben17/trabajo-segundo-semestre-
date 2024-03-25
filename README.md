@@ -1,2 +1,2 @@
 # trabajo-segundo-semestre-
-p -asld,sd a}
+en este repositorio ingresare el codigo del triqui 
